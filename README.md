@@ -16,6 +16,11 @@ A Compilation of my appearances in newspapers and magazines
 * [IIT-Madras clinches the Chennai round](https://www.thehindubusinessline.com/news/bl-cerebration-quiz-iit-madras-clinches-the-chennai-round/article28984265.ece)
 * [IIT-Madras team wins regional round of BL Cerebration quiz](https://www.thehindu.com/news/cities/chennai/iit-madras-team-wins-regional-round-of-bl-cerebration-quiz/article28985647.ece)
 
+### DDM IT Quiz
+* [IIT Madras Crowned As Winner Of DDM IT Quiz Bhubaneswar Edition](https://odishasuntimes.com/iit-madras-crowned-as-winner-of-ddm-it-quiz-bhubaneswar-edition/)
+* [IIT Madras wins DDM IT Quiz BBSR edition](https://www.dailypioneer.com/2019/state-editions/in---briefs-in---briefs-2019-03-18.html)
+* [IIT Madras bags title](https://www.orissapost.com/iit-madras-bags-title/)
+
 ### TATA Crucible Campus Quiz 
 * [IIT Madras win Chennai regional finals of Tata Crucible Campus Quiz 2019](https://indiaeducationdiary.in/iit-madras-win-chennai-regional-finals-tata-crucible-campus-quiz-2019/)
 
