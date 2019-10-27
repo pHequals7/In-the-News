@@ -4,11 +4,9 @@ A Compilation of my appearances in newspapers and magazines
 ## 2019
 ### NTPC Electron Quiz
 * [NTPC Electron National 2019 Quiz: IIT Madras bags first place](https://www.jagranjosh.com/news/iit-madras-bags-1st-position-in-ntpc-electron-quiz-151881)
-
 * [IIT Madras wins the title of NTPC Electron National Finale 2019](https://indiaeducationdiary.in/iit-madras-wins-the-title-of-ntpc-electron-national-finale-2019/)
-
 * [IIT Madras wins NTPC Electron National Finale](https://economictimes.indiatimes.com/industry/services/education/iit-madras-wins-ntpc-electron-national-finale/articleshow/71604824.cms)
-
+* [IIT Madras wins  NTPC Electron National 2019](http://www.millenniumpost.in/features/iit-madras-wins-ntpc-electron-national-2019-379693)
 * [Pranav Hari and Rahul Humayun from IIT Madras were the first runner-up team ](https://telanganatoday.com/ntpc-electron-quiz-concludes-hyderabad)
 
 ### Hindu Businessline Cerebration Quiz
@@ -23,6 +21,13 @@ A Compilation of my appearances in newspapers and magazines
 
 ### TATA Crucible Campus Quiz 
 * [IIT Madras win Chennai regional finals of Tata Crucible Campus Quiz 2019](https://indiaeducationdiary.in/iit-madras-win-chennai-regional-finals-tata-crucible-campus-quiz-2019/)
+* [IIT team wins quiz, takes home Rs 75,000](https://www.dtnext.in/News/City/2019/03/13032157/1110271/IIT-team-wins-quiz-takes-home-Rs-75000.vpf)
 
 ### SBI Numero Yono Quiz
 * [IIT-Madras team shines in 'Numero YONO' by SBI](https://thandoratimes.com/news-id-iit-madras-team-shines-in-numero-yono-by-sbi802.htm)
+
+## 2017
+### Hindu Businessline Cerebration Quiz
+* [IIT-M wins preliminary round of BusinessLine quiz](https://www.thehindu.com/news/national/tamil-nadu/iit-m-wins-preliminary-round-of-businessline-quiz/article19567666.ece)
+* [IIT-Madras students come 3rd](https://www.thehindubusinessline.com/news/deloitte-team-wins-businessline-quiz/article9871359.ece)
+
