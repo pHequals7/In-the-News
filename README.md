@@ -41,7 +41,17 @@ A Compilation of my appearances in newspapers and magazines
 * [Maharishi Vidya Mandir Chetpet, Chennai wins the Texas Instruments Science & Technology Quiz 2015](https://www.digitalcreed.in/maharishi-vidya-mandir-chetpet-chennai-wins-the-texas-instruments-science-technology-quiz-2015/)
 
 ## 2014
+### Murugappa Madras Quotient Quiz
+* [‘Two and a Half Men’ and a High Madras Quotient](http://www.newindianexpress.com/cities/chennai/2014/sep/08/%E2%80%98Two-and-a-Half-Men%E2%80%99-and-a-High-Madras-Quotient-657782.html)
+* [Maharishi Vidya Mandir Chetpet wins the 4th edition of Murugappa Madras Quotient Quiz](https://www.murugappa.com/murugappa-madras-quotient-quiz-2014/)
+* [Maharishi Vidya Mandir, Chetpet wins the Murugappa Madras Quotient Quiz 2014](http://yocee.in/maharishi-vidya-mandir-chetpet-wins-the-murugappa-madras-quotient-quiz-2014/)
 ### Times NIE Fundamnetal Quiz
 * [Two Maharishi Vidya Mandir students win Times NIE Quiz](https://timesofindia.indiatimes.com/city/chennai/Two-Maharishi-Vidya-Mandir-students-win-Times-NIE-Quiz/articleshow/39656975.cms)
 ### Coast Guard Quiz
 * [Quizzers battle it out on coast guard ships](https://timesofindia.indiatimes.com/city/chennai/Quizzers-battle-it-out-on-coast-guard-ships/articleshow/29513808.cms)
+
+## 2012
+### Murugappa Madras Quotient Quiz
+* [Team “Why this vetri veri da?” (comprising Arjun, Pranav Hari and Sankrith from PS Senior Secondary School) came 2nd](https://www.murugappa.com/vidya-mandir-wins-2nd-edition-of-murugappa-madras-quotient-quiz/)
+* [PS Senior comes 2nd in MMQQ 2012](http://madrasmusings.com/Vol%2022%20No%2011/the-murugappa-madras-quotient-quiz-2012.html)
+
