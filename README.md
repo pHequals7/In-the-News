@@ -26,8 +26,22 @@ A Compilation of my appearances in newspapers and magazines
 ### SBI Numero Yono Quiz
 * [IIT-Madras team shines in 'Numero YONO' by SBI](https://thandoratimes.com/news-id-iit-madras-team-shines-in-numero-yono-by-sbi802.htm)
 
+## 2018
+### TATA Crucible Campus Quiz
+* [IIT-M students win Tata Crucible Campus Quiz](https://www.thehindu.com/news/national/tamil-nadu/iit-m-students-win-tata-crucible-campus-quiz/article23358687.ece)
+
 ## 2017
 ### Hindu Businessline Cerebration Quiz
 * [IIT-M wins preliminary round of BusinessLine quiz](https://www.thehindu.com/news/national/tamil-nadu/iit-m-wins-preliminary-round-of-businessline-quiz/article19567666.ece)
 * [IIT-Madras students come 3rd](https://www.thehindubusinessline.com/news/deloitte-team-wins-businessline-quiz/article9871359.ece)
 
+## 2015
+### Texas Instruments Science and Technology Quiz
+* [Maharishi Vidya Mandir Chetpet, Chennai wins Texas Quiz 2015](https://www.careerindia.com/news/maharishi-vidya-mandir-chetpet-chennai-wins-texas-quiz-2015-013962.html)
+* [Maharishi Vidya Mandir Chetpet, Chennai wins the Texas Instruments Science & Technology Quiz 2015](https://www.digitalcreed.in/maharishi-vidya-mandir-chetpet-chennai-wins-the-texas-instruments-science-technology-quiz-2015/)
+
+## 2014
+### Times NIE Fundamnetal Quiz
+* [Two Maharishi Vidya Mandir students win Times NIE Quiz](https://timesofindia.indiatimes.com/city/chennai/Two-Maharishi-Vidya-Mandir-students-win-Times-NIE-Quiz/articleshow/39656975.cms)
+### Coast Guard Quiz
+* [Quizzers battle it out on coast guard ships](https://timesofindia.indiatimes.com/city/chennai/Quizzers-battle-it-out-on-coast-guard-ships/articleshow/29513808.cms)
