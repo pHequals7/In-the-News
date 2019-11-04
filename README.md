@@ -1,7 +1,7 @@
 # In-the-News
 A Compilation of my appearances in newspapers and magazines
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8K8v-hiuUiA?controls=0" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 
 ## 2019
 ### NTPC Electron Quiz
@@ -36,7 +36,6 @@ A Compilation of my appearances in newspapers and magazines
 ### Hindu Businessline Cerebration Quiz
 * [IIT-M wins preliminary round of BusinessLine quiz](https://www.thehindu.com/news/national/tamil-nadu/iit-m-wins-preliminary-round-of-businessline-quiz/article19567666.ece)
 * [IIT-Madras students come 3rd](https://www.thehindubusinessline.com/news/deloitte-team-wins-businessline-quiz/article9871359.ece)
-* [![Businessline Cerebration 2017](https://i.imgur.com/D728flw.jpg)](https://youtu.be/8K8v-hiuUiA)
 
 ## 2015
 ### Texas Instruments Science and Technology Quiz
