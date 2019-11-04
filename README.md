@@ -55,3 +55,7 @@ A Compilation of my appearances in newspapers and magazines
 * [Team “Why this vetri veri da?” (comprising Arjun, Pranav Hari and Sankrith from PS Senior Secondary School) came 2nd](https://www.murugappa.com/vidya-mandir-wins-2nd-edition-of-murugappa-madras-quotient-quiz/)
 * [PS Senior comes 2nd in MMQQ 2012](http://madrasmusings.com/Vol%2022%20No%2011/the-murugappa-madras-quotient-quiz-2012.html)
 
+## 2011
+### Scholastic Wordmaster
+* [Pranav Hari and Pranav Kamesh from PS Senior come 2nd in Scholastic Wordmaster](https://www.thehindu.com/features/kids/get-wordy/article2382643.ece)
+
