@@ -34,6 +34,7 @@ A Compilation of my appearances in newspapers and magazines
 ### Hindu Businessline Cerebration Quiz
 * [IIT-M wins preliminary round of BusinessLine quiz](https://www.thehindu.com/news/national/tamil-nadu/iit-m-wins-preliminary-round-of-businessline-quiz/article19567666.ece)
 * [IIT-Madras students come 3rd](https://www.thehindubusinessline.com/news/deloitte-team-wins-businessline-quiz/article9871359.ece)
+* [![Businessline Cerebration 2017](https://i.imgur.com/D728flw.jpg)](https://youtu.be/8K8v-hiuUiA)
 
 ## 2015
 ### Texas Instruments Science and Technology Quiz
