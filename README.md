@@ -4,6 +4,9 @@ A Compilation of my appearances in newspapers and magazines
 
 
 ## 2019
+### IMT Hyderabad Inquisitve Business Quiz
+* [Students from IIT-Madras come as runner up in a quiz conducted by IMT Hyderabad](https://telanganatoday.com/business-quiz-held-at-imt-hyderabad)
+
 ### NTPC Electron Quiz
 * [NTPC Electron National 2019 Quiz: IIT Madras bags first place](https://www.jagranjosh.com/news/iit-madras-bags-1st-position-in-ntpc-electron-quiz-151881)
 * [IIT Madras wins the title of NTPC Electron National Finale 2019](https://indiaeducationdiary.in/iit-madras-wins-the-title-of-ntpc-electron-national-finale-2019/)
