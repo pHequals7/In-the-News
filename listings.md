@@ -55,6 +55,9 @@ A Compilation of my appearances in newspapers and magazines
 ### Coast Guard Quiz
 * [Quizzers battle it out on coast guard ships](https://timesofindia.indiatimes.com/city/chennai/Quizzers-battle-it-out-on-coast-guard-ships/articleshow/29513808.cms)
 
+### Vina Vidai Vettai Juniors (Quiz TV Show on Puthy Yugam Channel)
+<iframe width="720" height="405" src="https://youtu.be/WnVYtLqZx3c" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## 2012
 ### Murugappa Madras Quotient Quiz
 * [Team “Why this vetri veri da?” (comprising Arjun, Pranav Hari and Sankrith from PS Senior Secondary School) came 2nd](https://www.murugappa.com/vidya-mandir-wins-2nd-edition-of-murugappa-madras-quotient-quiz/)
