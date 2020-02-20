@@ -1,5 +1,5 @@
 # In-the-News
-A Compilation of my appearances in newspapers and magazines
+A Compilation of my appearances in online newspapers and magazines
 
 
 
@@ -56,7 +56,7 @@ A Compilation of my appearances in newspapers and magazines
 * [Quizzers battle it out on coast guard ships](https://timesofindia.indiatimes.com/city/chennai/Quizzers-battle-it-out-on-coast-guard-ships/articleshow/29513808.cms)
 
 ### Vina Vidai Vettai Juniors (Quiz TV Show on Puthy Yugam Channel)
-<iframe width="720" height="405" src="https://youtu.be/WnVYtLqZx3c" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+* https://youtu.be/WnVYtLqZx3c
 
 ## 2012
 ### Murugappa Madras Quotient Quiz
