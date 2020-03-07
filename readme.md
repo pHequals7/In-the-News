@@ -37,6 +37,7 @@ A Compilation of my appearances in online newspapers and magazines
 ## 2018
 ### TATA Crucible Campus Quiz
 * [IIT-M students win Tata Crucible Campus Quiz](https://www.thehindu.com/news/national/tamil-nadu/iit-m-students-win-tata-crucible-campus-quiz/article23358687.ece)
+* [Team from (IIT), Madras emerge as winners at Chennai regional finals of Tata Crucible Campus Quiz 2019](https://chennaiyil.com/ta/team-iit-madras-emerge-winners-chennai-regional-finals-tata-crucible-campus-quiz-2019/)
 
 ## 2017
 ### Hindu Businessline Cerebration Quiz
