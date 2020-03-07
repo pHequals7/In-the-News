@@ -1,6 +1,9 @@
 # In-the-News
 A Compilation of my appearances in online newspapers and magazines
 
+## 2020
+### TATA Crucible Campus Quiz
+* [IIT-M team emerge victorious at Chennai Regional Finals of Tata Crucible Campus Quiz 2020](https://navjeevanexpress.com/iit-m-team-emerge-victorious-at-chennai-regional-finals-of-tata-crucible-campus-quiz-2020/)
 
 
 ## 2019
