@@ -30,6 +30,8 @@ A Compilation of my appearances in online newspapers and magazines
 ### TATA Crucible Campus Quiz 
 * [IIT Madras win Chennai regional finals of Tata Crucible Campus Quiz 2019](https://indiaeducationdiary.in/iit-madras-win-chennai-regional-finals-tata-crucible-campus-quiz-2019/)
 * [IIT team wins quiz, takes home Rs 75,000](https://www.dtnext.in/News/City/2019/03/13032157/1110271/IIT-team-wins-quiz-takes-home-Rs-75000.vpf)
+* [Team from (IIT), Madras emerge as winners at Chennai regional finals of Tata Crucible Campus Quiz 2019](https://chennaiyil.com/ta/team-iit-madras-emerge-winners-chennai-regional-finals-tata-crucible-campus-quiz-2019/)
+
 
 ### SBI Numero Yono Quiz
 * [IIT-Madras team shines in 'Numero YONO' by SBI](https://thandoratimes.com/news-id-iit-madras-team-shines-in-numero-yono-by-sbi802.htm)
@@ -37,7 +39,6 @@ A Compilation of my appearances in online newspapers and magazines
 ## 2018
 ### TATA Crucible Campus Quiz
 * [IIT-M students win Tata Crucible Campus Quiz](https://www.thehindu.com/news/national/tamil-nadu/iit-m-students-win-tata-crucible-campus-quiz/article23358687.ece)
-* [Team from (IIT), Madras emerge as winners at Chennai regional finals of Tata Crucible Campus Quiz 2019](https://chennaiyil.com/ta/team-iit-madras-emerge-winners-chennai-regional-finals-tata-crucible-campus-quiz-2019/)
 
 ## 2017
 ### Hindu Businessline Cerebration Quiz
